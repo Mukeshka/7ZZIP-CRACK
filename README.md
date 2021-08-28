@@ -1,0 +1,2 @@
+# 7ZZIP-CRACK
+7ZZIP
